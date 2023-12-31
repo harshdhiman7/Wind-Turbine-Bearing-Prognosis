@@ -1,0 +1,1 @@
+# Wind-Turbine-High-Speed-Bearing-Prognosis
